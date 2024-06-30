@@ -1,2 +1,1 @@
-# Adobe-Photoshop-2024
-Adobe Photoshop 2024
+Ti gey ti gey ti gey 
